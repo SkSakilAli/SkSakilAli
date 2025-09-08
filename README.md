@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @SkSakilAli
 - 👀 I’m interested in exploring different areas of software development
-- 🌱 I’m currently learning C/C++
 - 💞️ I’m looking to collaborate on different open source projects
 - 😄 Pronouns: He/Him
   
