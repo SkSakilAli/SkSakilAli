@@ -1,4 +1,4 @@
-- Just a Noob Wannabe trying to be "Programmer", wanted to code for living but seems like Jab Mera Engineering karna ka bari aya toh AI, recession , traiffs sab ak sath ahh gaya. But still Btech Chaiwala is still an option. 
+- Just a Noob Wannabe trying to be "Programmer", wanted to code for living but seems like Jab Mera Engineering karna ka bari aya toh AI, recession , traiffs sab ak sath ahh gaya. But still Btech Chaiwala is a good option. 
   
 
 <!---
